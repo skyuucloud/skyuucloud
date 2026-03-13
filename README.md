@@ -13,3 +13,4 @@ all though i wont mind a few hate comments and threats.. ▼・ᴥ・▼
 
 ⊶⊷⊶⊷⊶⊷⋆⊶⊷⊶⊷⊶⊶⊷⊶⊷⊶⊷⋆⊶⊷⊶⊷⊶
 
+this is a wip because im a newbie at this and dunno how to add stuff / photos right now ,, 
