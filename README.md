@@ -11,3 +11,5 @@ block me freely dont waste your time harassing me in my sp or ata.........
 
 all though i wont mind a few hate comments and threats.. ▼・ᴥ・▼
 
+⊶⊷⊶⊷⊶⊷⋆⊶⊷⊶⊷⊶⊶⊷⊶⊷⊶⊷⋆⊶⊷⊶⊷⊶
+
