@@ -4,4 +4,4 @@ _" come on sukuna! "_
 
 _" lets go! "_                                                                              made on PC!!  ![](https://komarev.com/ghpvc/?username=your-github-skyuucloud&color=gray&label=flat-square&label=(=^ェ^=)+PV+!)
 
-<img width="2449" height="1700" alt="Untitled409_20260317030933" src="https://github.com/user-attachments/assets/c414b84e-4dd3-4b62-bade-cedaa9af4496" />
+<img width="4000" height="181" alt="Untitled409_20260317031043" src="https://github.com/user-attachments/assets/cc1e4542-e669-45d4-ba61-06ac59a2abce" />
