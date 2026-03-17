@@ -1,16 +1,5 @@
-##  ˗ˋˏ 🐯⛩ ⸝꙳  ᰔ  . ‎˖ ˊ
+_" come on sukuna! "_
 
+![IMG_1804](https://github.com/user-attachments/assets/a72e8097-18bf-4147-a10b-0b07670ca085)
 
-      
-   ─── hello welcome to my github! thanks for clicking if i had 'read gh byi' in my name ^_^!!!
-sorry im not a boring normie like you losers.......!!!!!!!!!!!!
-
-![](https://komarev.com/ghpvc/?username=your-github-skyuucloud)
-
-block me freely dont waste your time harassing me in my sp or ata......... 
-
-all though i wont mind a few hate comments and threats.. ▼・ᴥ・▼
-
-⊶⊷⊶⊷⊶⊷⋆⊶⊷⊶⊷⊶⊶⊷⊶⊷⊶⊷⋆⊶⊷⊶⊷⊶
-
-this is a wip because im a newbie at this and dunno how to add stuff / photos right now ,, 
+_" lets go! "_                                  ![](https://komarev.com/ghpvc/?username=your-github-skyuucloud&color=gray&label=flat-square&label=(=^ェ^=)+PV+!)
