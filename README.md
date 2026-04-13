@@ -1,4 +1,4 @@
-  ^_^      links .    ׅ    [main strawpage](https://skyuuvclxx.straw.page/)     ﹕   [2'nd strawpage](https://llukasickficck.straw.page/)     ﹕  [pronounpage](https://en.pronouns.page/@skyuuxccx)    ﹕ [atabook](https://skkxyuu.atabook.org)     .   
+  ^_^      links .         ﹕   [strawpage](https://llukasickficck.straw.page/)     ﹕  [pronounpage](https://en.pronouns.page/@skyuuxccx)    ﹕ [atabook](https://skkxyuu.atabook.org)     .   
 
 <img width="742" height="742" alt="Untitled409_20260317031813" src="https://github.com/user-attachments/assets/6949fc70-c1c5-4b31-b769-8f8832a79819" />                                
 
