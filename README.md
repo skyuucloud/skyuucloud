@@ -3,10 +3,12 @@ $${\color{#DE4364}\text{    ˚  ༘ ˗ˋ  𝘳𝘦𝘢𝘥 𝘴�
   <img src="https://cdn.phototourl.com/free/2026-09-08-5e2d442d-0b4c-48ec-815a-6ddc326b926f.png" alt="image" />
 </a>
 
-         ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
+         ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢            
 $${\color{#DE4364}\text{ interact with cation unless close friend!!. . .    
 do not friend     under 13;  dni info on straw (⁎⁍̴̛ ₃ ⁍̴̛⁎)}}$$
 
 
+     ![](https://komarev.com/ghpvc/?username=your-github-skyuucloud&color=FF8DA1&label=flat-square&label=🐯⛩⸝꙳.‎˖)
 
-made on PC!!  ![](https://komarev.com/ghpvc/?username=your-github-skyuucloud&color=gray&label=flat-square&label=(=^ェ^=)+PV+!)
+      [˚ ₊ ·—̳͟͞͞𝘢𝘵𝘢𝘣𝘰𝘰𝘬](https://skkxyuu.atabook.org)
+      [ ˗ˋˏ⋆𝘧𝘳𝘪𝘦𝘯𝘥 𝘢𝘱𝘱𝘳𝘦𝘤𝘪𝘢𝘵𝘪𝘰𝘯 ♥︎](https://llukaslovelist.straw.page)
