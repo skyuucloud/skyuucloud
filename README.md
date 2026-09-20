@@ -4,7 +4,7 @@ $${\color{#F36881}\text{ ⛩⸝꙳ . ‎˖ 𝘧𝘳𝘦𝘦𝘭𝘺   
   <img src="https://cdn.phototourl.com/free/2026-09-08-5e2d442d-0b4c-48ec-815a-6ddc326b926f.png" alt="image" />
 </a>
                                                     
-                          ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢    
+                    ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢    
                             
 $${\color{#D43554}\text{ 𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵 𝘸𝘪𝘵𝘩 𝘤𝘢𝘵𝘪𝘰𝘯}}$$ $${\color{#E27992
 }\text{𝘶𝘯𝘭𝘦𝘴𝘴 𝘤𝘭𝘰𝘴𝘦𝘧𝘳𝘪𝘦𝘯𝘥! . . .}}$$ 
