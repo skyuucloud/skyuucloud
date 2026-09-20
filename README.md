@@ -10,5 +10,5 @@ do not friend     under 13;  dni info on straw (⁎⁍̴̛ ₃ ⁍̴
 
      ![](https://komarev.com/ghpvc/?username=your-github-skyuucloud&color=FF8DA1&label=flat-square&label=🐯⛩⸝꙳.‎˖)
 
-      [˚ ₊ ·—̳͟͞͞𝘢𝘵𝘢𝘣𝘰𝘰𝘬˙˙˙   ✶](https://sskitxlouddx.atabook.org)  
+    [˚ ₊ ·—̳͟͞͞𝘢𝘵𝘢𝘣𝘰𝘰𝘬˙˙˙   ✶](https://sskitxlouddx.atabook.org)  
       [ ˗ˋˏ⋆𝘧𝘳𝘪𝘦𝘯𝘥 𝘢𝘱𝘱𝘳𝘦𝘤𝘪𝘢𝘵𝘪𝘰𝘯 ˓ ♥︎﹍](https://llukaslovelist.straw.page)
