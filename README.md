@@ -1,11 +1,10 @@
-$${\color{#DE4364}\text{    ˚  ༘ ˗ˋ  𝘳𝘦𝘢𝘥 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦 ;  𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘱𝘢𝘨𝘦    𝘉4  𝘺𝘰𝘶  friend!  ⛩⸝꙳ . ‎˖ freely cover / cudd!!! }}$$
+$${\color{#DE4364}\text{    ˚  ༘ ˗ˋ  𝘳𝘦𝘢𝘥 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦 ;  𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘱𝘢𝘨𝘦    𝘉4  𝘺𝘰𝘶  𝘧𝘳𝘪𝘦𝘯𝘥!  ⛩⸝꙳ . ‎˖ 𝘧𝘳𝘦𝘦𝘭𝘺    𝘤𝘰𝘷𝘦𝘳!/𝘤𝘶𝘥𝘥𝘭𝘦!!! }}$$
 <a href="YOUR_IMAGE_URL">
   <img src="https://cdn.phototourl.com/free/2026-09-08-5e2d442d-0b4c-48ec-815a-6ddc326b926f.png" alt="image" />
 </a>
 
-         ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢            
-$${\color{#DE4364}\text{ interact with cation unless close friend!!. . .    
-do not friend     under 13;  dni info on straw (⁎⁍̴̛ ₃ ⁍̴̛⁎)}}$$
+                ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢                       
+$${\color{#DE4364}\text{ interact with cation 𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵 𝘸𝘪𝘵𝘩 𝘤𝘢𝘵𝘪𝘰𝘯 𝘶𝘯𝘭𝘦𝘴𝘴 𝘤𝘭𝘰𝘴𝘦𝘧𝘳𝘪𝘦𝘯𝘥!...                𝘥𝘰 𝘯𝘰𝘵 𝘧𝘳𝘪𝘦𝘯𝘥 𝘶𝘯𝘥𝘦𝘳 13 ;-;  dni info on straw (⁎⁍̴̛ ₃ ⁍̴̛⁎)}}$$
 
 
      ![](https://komarev.com/ghpvc/?username=your-github-skyuucloud&color=FF8DA1&label=flat-square&label=🐯⛩⸝꙳.‎˖)
