@@ -12,4 +12,4 @@ $${\color{#CB1454
   <img src="https://cdn.phototourl.com/member/2026-09-21-b255e951-3662-4869-b04e-172f05b45d8d.png" alt="image" />
 </a>                       
 better formatted on PC!    ![](https://komarev.com/ghpvc/?username=your-github-skyuucloud&color=FF8DA1&label=flat-square&label=🐯⛩⸝꙳.‎˖)
-                    [lovemail](https://llukaslovelist.straw.page) [atabook](https://sskitxlouddx.atabook.org/)
+                    [lovemail](https://llukaslovelist.straw.page) [PrnPage](https://en.pronouns.page/@skyuuxccx)
