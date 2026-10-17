@@ -10,6 +10,6 @@ $${\color{#CB1454
 }\text{𝘥𝘰 𝘯𝘰𝘵 𝘧𝘳𝘪𝘦𝘯𝘥 𝘶𝘯𝘥𝘦𝘳 13    }}$$ $${\color{#A8003A}\text{+  dni info on straw  (⁎⁍̴̛ ₃ ⁍̴̛⁎)}}$$      
 <a href="YOUR_IMAGE_URL"> 
   <img src="https://cdn.phototourl.com/member/2026-09-21-b255e951-3662-4869-b04e-172f05b45d8d.png" alt="image" />
-</a>                       
-    ![](https://komarev.com/ghpvc/?username=your-github-skyuucloud&color=FF8DA1&label=flat-square&label=𑣲.🐯⛩⸝꙳.‎˖)
-                    [lovemail](https://llukaslovelist.straw.page) [PrnPage](https://en.pronouns.page/@skyuuxccx)
+</a>
+
+![](https://komarev.com/ghpvc/?username=your-github-skyuucloud&color=FF8DA1&label=flat-square&label=𑣲.🐯⛩⸝꙳.‎˖)
