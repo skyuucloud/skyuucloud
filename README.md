@@ -10,5 +10,3 @@ $${\color{#CB1454}\text{𝘥𝘰 𝘯𝘰𝘵 𝘧𝘳𝘪𝘦𝘯𝘥 𝘶𝘯�
 <p align="center">
   <img src="https://cdn.phototourl.com/member/2026-09-21-b255e951-3662-4869-b04e-172f05b45d8d.png" alt="Jujutsu Kaisen Art" width="500"/>
 </p>
-
-![](https://komarev.com/ghpvc/?username=skyuucloud&color=FF8DB9&style=flat-square&label=Stand+Proud&abbreviated=true)
