@@ -11,5 +11,5 @@ $${\color{#CB1454
 <a href="YOUR_IMAGE_URL"> 
   <img src="https://cdn.phototourl.com/member/2026-09-21-b255e951-3662-4869-b04e-172f05b45d8d.png" alt="image" />
 </a>                       
-better formatted on PC!    ![](https://komarev.com/ghpvc/?username=your-github-skyuucloud&color=FF8DA1&label=flat-square&label=𑣲.🐯⛩⸝꙳.‎˖)
+    ![](https://komarev.com/ghpvc/?username=your-github-skyuucloud&color=FF8DA1&label=flat-square&label=𑣲.🐯⛩⸝꙳.‎˖)
                     [lovemail](https://llukaslovelist.straw.page) [PrnPage](https://en.pronouns.page/@skyuuxccx)
