@@ -2,7 +2,7 @@
 
 ᛝ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ᛝ
 
-  ![](https://komarev.com/ghpvc/?username=skyuucloud&base=2016&color=ff69b4&label=_+꒰˗ˋˏꜱᴛᴀɴᴅ+𝘱𝘳𝘰𝘶𝘥ˎˊ˗꒱+_)
+  ![](https://komarev.com/ghpvc/?username=skyuucloud&base=2016&color=ff69b4&label=_+꒰˗ˋˏꜱᴛᴀɴᴅ+𝘱𝘳𝘰𝘶𝘥ˎˊ˗ଓ+_)
 
 $${\color{#FFCADD}\text{    ˚  ༘ ˗ˋ  𝘳𝘦𝘢𝘥 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦 ;  𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘱𝘢𝘨𝘦    𝘉4  𝘺𝘰𝘶  𝘧𝘳𝘪𝘦𝘯𝘥!˖ ᡣ𐭩 .}}$$ 
 $${\color{#FFA6C5}\text{ ⛩⸝꙳ . ‎˖ 𝘧𝘳𝘦𝘦𝘭𝘺   𝘤𝘰𝘷𝘦𝘳! /𝘤𝘶𝘥𝘥𝘭𝘦 ! ! !  — ᨳଓ . }}$$
