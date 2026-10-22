@@ -1,5 +1,7 @@
 <div align="center">
 
+ᛝ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ᛝ
+
   ![](https://komarev.com/ghpvc/?username=skyuucloud&base=2004&abbreviated=true&color=ff69b4&label=˗ˋˏ𝘚𝘵𝘢𝘯𝘥+𝘱𝘳𝘰𝘶𝘥ˎˊ˗)
 
 $${\color{#FFCADD}\text{    ˚  ༘ ˗ˋ  𝘳𝘦𝘢𝘥 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦 ;  𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘱𝘢𝘨𝘦    𝘉4  𝘺𝘰𝘶  𝘧𝘳𝘪𝘦𝘯𝘥!˖ ᡣ𐭩 .}}$$ 
@@ -14,5 +16,4 @@ $${\color{#CB1454}\text{𝘥𝘰 𝘯𝘰𝘵 𝘧𝘳𝘪𝘦𝘯𝘥 𝘶𝘯�
   <img src="https://cdn.phototourl.com/member/2026-10-18-eb51b0a1-dfa0-48f6-99ac-1ae4b03a00b9.png" alt="Jujutsu Kaisen Art" width="500"/>
 
 <p align="center">
-   <a href="https://llukaslovelist.straw.page">love♥︎list</a>.
-</p>
+   <a href="https://llukaslovelist.straw.page">love♥︎list</a>
