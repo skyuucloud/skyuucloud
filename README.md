@@ -2,7 +2,7 @@
 
 ࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙ ⪩⪨ ࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜ ࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚ 
 
-![](https://komarev.com/ghpvc/?username=skyuucloud&base=2016&color=ff69b4&label=_+˗ˋˏ&#x02E2;&#x1D1B;&#x1D00;&#x0274;&#x1D05;+&#x1D53;(&#x0280;&#x1D0F;&#x1D1C;&#x1D05;&#x02E2;)+_)
+better viewed on PC! ![](https://komarev.com/ghpvc/?username=skyuucloud&base=2016&color=ff69b4&label=_+˗ˋˏ&#x02E2;&#x1D1B;&#x1D00;&#x0274;&#x1D05;+&#x1D53;(&#x0280;&#x1D0F;&#x1D1C;&#x1D05;&#x02E2;)+_)
 
 $${\color{#FC5875}\text{read}}\ {\color{#F15F76}\text{strawpage}}\ {\color{#E56577}\text{B4}}\ {\color{#D96B78}\text{you}}\ {\color{#CE6F79}\text{friend!}}$$
 ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧
