@@ -6,7 +6,7 @@
 
 <br>
 
-$${\color{#F3C4D2}\text{read}}\quad{\color{#E685A2}\text{strawpage}}$$
+$${\color{#FC5875}\text{read}}\ {\color{#F15F76}\text{strawpage}}\ {\color{#E56577}\text{B4}}\ {\color{#D96B78}\text{you}}\ {\color{#CE6F79}\text{friend!}}$$
 
 <br>
 
