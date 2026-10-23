@@ -3,9 +3,8 @@
 > better viewed on PC (,,>﹏<,,)  +  profile views wont show up (⇀‸↼‶)
 
 ୨ㅤ࣪ㅤ𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡 ୨୧ 𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡ㅤ࣪ㅤ୧۪
-
-
 ![](https://komarev.com/ghpvc/?username=skyuucloud&color=ff69b4&base=2087&label=stand+proud)
+
 
  ⧽⧽⧽ $${\color{#FC5875}\text{read}}\ {\color{#F15F76}\text{strawpage}}\ {\color{#E56577}\text{B4}}\ {\color{#D96B78}\text{you}}\ {\color{#CE6F79}\text{friend!}}$$ ദ്ദി ˉ͈̀꒳ˉ͈́ )✧ 
 
