@@ -4,13 +4,9 @@
 
   ![](https://komarev.com/ghpvc/?username=skyuucloud&base=2016&color=ff69b4&label=_+˗ˋˏꜱᴛᴀɴᴅ+𝘱𝘳𝘰𝘶𝘥ˎˊ˗+_)
 
-$${\color{#FFCADD}\text{    ˚  ༘ ˗ˋ  𝘳𝘦𝘢𝘥 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦 ;  𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘱𝘢𝘨𝘦    𝘉4  𝘺𝘰𝘶  𝘧𝘳𝘪𝘦𝘯𝘥!˖ ᡣ𐭩 .}}$$ 
-$${\color{#FFA6C5}\text{ ⛩⸝꙳ . ‎˖ 𝘧𝘳𝘦𝘦𝘭𝘺   𝘤𝘰𝘷𝘦𝘳! /𝘤𝘶𝘥𝘥𝘭𝘦 ! ! !  — ᨳଓ . }}$$
+<div align="center">
 
-$${\color{#FF72A3}\text{   𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵 𝘸𝘪𝘵𝘩 𝘤𝘢𝘵𝘪𝘰𝘯}}$$
-$${\color{#EA3D7A}\text{𝘶𝘯𝘭𝘦𝘴𝘴 𝘤𝘭𝘰𝘴𝘦𝘧𝘳𝘪𝘦𝘯𝘥! . . .}}$$ 
-
-$${\color{#CB1454}\text{𝘥𝘰 𝘯𝘰𝘵 𝘧𝘳𝘪𝘦𝘯𝘥 𝘶𝘯𝘥𝘦𝘳 13    }}$$ $${\color{#A8003A}\text{+  dni info on straw  (⁎⁍̴̛ ₃ ⁍̴̛⁎)}}$$      
+$${\color{#F3C4D2}\text{read}}$$ $${\color{#E685A2}\text{strawpage}}$$ 
 
 <p align="center">
   <img src="https://cdn.phototourl.com/member/2026-10-18-eb51b0a1-dfa0-48f6-99ac-1ae4b03a00b9.png" alt="Jujutsu Kaisen Art" width="500"/>
