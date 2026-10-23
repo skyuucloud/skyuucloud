@@ -1,4 +1,4 @@
->better viewed on PC :(
+>better viewed on PC (,,>﹏<,,)
 
 <div align="center">
 
