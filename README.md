@@ -4,7 +4,7 @@
 
   ![](https://komarev.com/ghpvc/?username=skyuucloud&base=2016&color=ff69b4&label=_+˗ˋˏꜱᴛᴀɴᴅ+𝘱𝘳𝘰𝘶𝘥ˎˊ˗+_)
 
-<div align="center">
+<div align="left">
 
 $${\color{#F3C4D2}\text{read}}$$ $${\color{#E685A2}\text{strawpage}}$$ 
 
