@@ -1,6 +1,6 @@
 <div align="center">
 
- ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ 
+ ࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙ ⪩⪨ ࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜ ࿚࿙֒͜࿚࿙֒͜࿚࿙֒͜࿚ 
 
 ![](https://komarev.com/ghpvc/?username=skyuucloud&base=2016&color=ff69b4&label=_+˗ˋˏꜱᴛᴀɴᴅ+𝘱𝘳𝘰𝘶𝘥ˎˊ˗+_)
 
@@ -17,6 +17,8 @@ $${\color{#C2737A}\text{interact}}\ {\color{#B5767B}\text{with}}\ {\color{#A9797
 <img src="https://cdn.phototourl.com/member/2026-10-18-eb51b0a1-dfa0-48f6-99ac-1ae4b03a00b9.png" alt="Jujutsu Kaisen Art" width="500"/>
 
 <br>
+
+$${\color{#B37C83}\text{freely}}\ {\color{#CDA6AB}\text{cuddle}}\ {\color{#D6B5B8}\text{or!}}\ {\color{#E7D2D4}\text{cover}}\ {\color{#EFE1E2}\text{me}}$$
 <br>
 
 <a href="https://llukaslovelist.straw.page">love♥︎list</a>
