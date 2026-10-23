@@ -1,7 +1,6 @@
 <div align="center">
 
 ᛝ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ᛝ
-
 ![](https://komarev.com/ghpvc/?username=skyuucloud&base=2016&color=ff69b4&label=_+˗ˋˏꜱᴛᴀɴᴅ+𝘱𝘳𝘰𝘶𝘥ˎˊ˗+_)
 
 </div>
